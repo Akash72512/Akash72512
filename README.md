@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Akash72512
 - 👀 I’m interested in GAME DESIGN, LEARNING NEW THINGS 
-- 📫 How to reach me gollamudiakash4@gmail.com
+- 📫 How to reach me gollamudiakash25@gmail.com
 - 😄 Pronouns: He/Him
 
 <!---
